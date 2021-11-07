@@ -1,6 +1,6 @@
 # Assignment-6
 
-Q.1 Link:
+Q.1 Link: https://youtu.be/1ivpo-W701Q
 
 Q.2 Link: 
 
