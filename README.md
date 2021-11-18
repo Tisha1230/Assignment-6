@@ -12,7 +12,7 @@ Q.5 Link: https://youtu.be/2wKkKNa1LMM
 
 Q.6 Link: https://youtu.be/y5EewoGCQ7w
 
-Q.7 Link: 
+Q.7 Link: https://youtu.be/tuNqXnWJZiY
 
 Q.8 Link:
 
