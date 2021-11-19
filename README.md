@@ -14,7 +14,7 @@ Q.6 Link: https://youtu.be/y5EewoGCQ7w
 
 Q.7 Link: https://youtu.be/tuNqXnWJZiY
 
-Q.8 Link:
+Q.8 Link: https://youtu.be/z7J12HBlm3Q
 
 Q.9 Link: 
 
